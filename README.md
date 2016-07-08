@@ -4,6 +4,10 @@ Hola Prueba
 
 https://www.mindmup.com/#m:g10B15FEKGipSwnQUFFdkJkbjhMcXMhttps://www.mindmup.com/#m:g10B15FEKGipSwnQUFFdkJkbjhMcXM
 
+https://www.mindmup.com/#m:g10B15FEKGipSwnQUFFdkJkbjhMcXM
+
+
 
 ##Mind Mup
 
+##Clase del 8 de julio 
